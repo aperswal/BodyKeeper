@@ -11,15 +11,14 @@ Hi there! Welcome to your ultimate guide for feeling and looking great after 45.
     - [Morning Ideas](#morning-ideas)
     - [Lunch Ideas](#lunch-ideas)
     - [Dinner Ideas](#dinner-ideas)
-6. [Simple Shopping List](#simple-shopping-list)
-7. [Storage Tips](#storage-tips)
-8. [Foods That Work Better Together](#foods-that-work-better-together)
-9. [Weekly Meal Prep Ideas](#weekly-meal-prep-ideas)
-10. [When to Eat What](#when-to-eat-what)
-11. [Signs These Foods Are Working](#signs-these-foods-are-working)
-12. [Quick Tips](#quick-tips)
-13. [Simple Combinations That Taste Great](#simple-combinations-that-taste-great)
-14. [Final Thoughts](#final-thoughts)
+6. [Storage Tips](#storage-tips)
+7. [Foods That Work Better Together](#foods-that-work-better-together)
+8. [Weekly Meal Prep Ideas](#weekly-meal-prep-ideas)
+9. [When to Eat What](#when-to-eat-what)
+10. [Signs These Foods Are Working](#signs-these-foods-are-working)
+11. [Quick Tips](#quick-tips)
+12. [Simple Combinations That Taste Great](#simple-combinations-that-taste-great)
+13. [Final Thoughts](#final-thoughts)
 
 ---
 
